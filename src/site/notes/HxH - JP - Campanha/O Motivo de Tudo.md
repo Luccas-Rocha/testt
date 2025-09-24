@@ -3,7 +3,7 @@
 ---
 
 
-Sr Trajano de alguma maneira ficou sabendo sobre nen e hatsu, após isso entrou em contato com outras famílias, como a Salles e os Marinho.
+Sr Trajano de alguma maneira ficou sabendo sobre nen e hatsu, após isso entrou em contato com outras famílias, como a [[HxH - JP - Campanha/Famílias/Salles\|Salles]] e os Marinho.
 
 Utilizando dos hatsus em conjunto Sr. Trajano montou um plano para que as famílias voltassem a ter poder como antes da associação hunter se assentar em YorkShin, deve ter fingido que era por estar perdendo dinheiro com construções mas na verdade queria viver por mais tempo.
 
